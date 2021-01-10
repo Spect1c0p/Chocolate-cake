@@ -1,0 +1,1 @@
+For the chocolate cake: Add flour, sugar, cocoa, baking powder, baking soda, salt and espresso powder to a large bowl or the bowl of a stand mixer. Whisk through to combine or, using your paddle attachment, stir through flour mixture until combined well.. Grease and line 2 – 6 inch cake pans or 1 – 7 or 8 inch pan. Preheat the oven to 175 C for at least 15 mins.
